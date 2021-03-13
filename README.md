@@ -7,6 +7,6 @@ im looking for help with specifically the coding aspect of the project as my fri
 
 if this project goes well, we are offering payment equal to your contribution.
 
-if your interested please contact me on any of the options down below;
+if your interested please contact me on any of these options;
 instagram - terminat0r919
 email - Travisjones333314@gmail.com
